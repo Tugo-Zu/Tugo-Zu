@@ -1,1 +1,1 @@
-C/C++ dev from home, 
+C/C++ dev from home, self-taught
